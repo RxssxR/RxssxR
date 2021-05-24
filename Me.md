@@ -1,0 +1,5 @@
+-  I’m @RxssxR
+-  I’m interested in lots of things
+-  I’m not currently learning 
+-  I'd love to collaborate with somebody
+-  You can find me here: https://discord.gg/bhDJpxM
